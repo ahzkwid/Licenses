@@ -5,6 +5,10 @@ https://youtu.be/lOFUHOx9ZCE
 ## Dreaming Teddy Bear
 https://youtu.be/pL6xtxHH_co
 
+## NYANYAご飯の時間
+https://youtu.be/mgScRo8HNSI
+The thumbnail of "NYANYAご飯の時間" cannot be used because it contains third-party copyrighted material that was used under a purchased license.
+
 
 # Permitted Uses
 ## You may use the music in YouTube videos.
