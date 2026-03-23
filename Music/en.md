@@ -20,11 +20,12 @@ The thumbnail of "NYANYAご飯の時間" cannot be used because it contains thir
 
 
 # Permitted Uses
-## You may use the music in YouTube videos.
+## You may use the music on YouTube, Twitter, TikTok, and other social media platforms.
 
-In this case, please clearly credit the source. The credit method is described below.  
-Monetization on YouTube videos is allowed.
+In this case, please clearly credit the source in your post or video description.  
+The credit method is described below.  
 
+Monetization is allowed on YouTube and other supported platforms.
 
 # How to Credit
 Please include the creator name, the full track title, and the original video link from Ahzkwid's YouTube in the video description.
